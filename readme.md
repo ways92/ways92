@@ -1,5 +1,4 @@
 Hi there, I'm Ways Alqorni (used to be called Ways) :grinning: <br>
-:technologist: I'm currently working as Freelance at DOT Indonesia <br>
 :innocent: All of my projects are available at here <br>
 :email: Send me an email wayslos92@gmail.com <br>
 
